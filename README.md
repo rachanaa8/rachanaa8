@@ -7,7 +7,7 @@
 
 - 📫 How to reach me *rachana.gajanan11b@gmail.com*
 
-- ⚡ Fun fact *If you can't convince them , Confuse them 😼*
+- ⚡ Fun fact *If you can't convince them , Confuse them*
 
 <h3 align="left">Connect with me:</h3>
 
